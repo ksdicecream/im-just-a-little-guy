@@ -1,2 +1,1 @@
-# im-just-a-little-guy
-jame gam game jam entry
+# I'm Just a Little Guy
